@@ -6,7 +6,7 @@
 
 #Support No Root ⚡
 
-#LOGIN COOKIES 👨🏻‍💻
+#Login cookies 👨🏻‍💻
 
 ------------------------------------------
 #CREATOR : P-STAR7
